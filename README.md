@@ -1,6 +1,6 @@
 ## my Awesome freaking list of
 # Scaries
-**warning. NOT for the faint of Heart.** /n
+**warning. NOT for the faint of Heart.**  
 *!!!this list will SCARE YOUR SOCKS OFF!!!*
 
 [1. Jeff. The freaking KILER>.](https://creepypastafiles.fandom.com/wiki/Jeff_the_Killer)
