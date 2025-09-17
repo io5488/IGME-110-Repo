@@ -39,7 +39,7 @@ I've never heard of this one, but it sounded funny.
 
 ## [5. the real monster.. HUMANITY!!!](https://en.wikipedia.org/wiki/Human)
 
-![That's.. kind of messed up. We're the real freaking monsters?!?](https://static.wikia.nocookie.net/creepypasta/images/f/ff/Mereana_Mordegard_Glesgorv/revision/latest?cb=20130603233425)
+![That's.. kind of messed up. We're the real freaking monsters?!?]([https://static.wikia.nocookie.net/creepypasta/images/f/ff/Mereana_Mordegard_Glesgorv/revision/latest?cb=20130603233425](https://i.kym-cdn.com/entries/icons/mobile/000/001/173/mereana-mordegard-glesgorv.jpg))
 
 Yep. I said it. Cancel me. The real monster is HUMANITY. This is deep, because,  
 Because like.   people do bad stuff sometimes. and also global warming
