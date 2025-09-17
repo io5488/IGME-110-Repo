@@ -26,3 +26,11 @@ He is big and tall and also white faced, like the last. If you look, he will mak
 ![OUGH! I just peed my pants because of this scary dog. No i didn't, haha. I was just kidding.](https://i.ytimg.com/vi/35cJcBdf3V0/maxresdefault.jpg)
 
 i actually dont really know the deal with this guy. But he is also white faced. I am starting to see a pattern, hmm...
+
+---
+
+## [4. The snack who smiled back.](https://creepypasta.fandom.com/wiki/Fish_Food)
+
+![what the actual hell is this one lol](https://static.wikia.nocookie.net/creepypasta/images/b/b1/Goldfish_zombie_by_danielmchavez-d4u6ob3_%281%29.jpg/revision/latest?cb=20180518090020)
+
+I've never heard of this one, but it sounded funny.
